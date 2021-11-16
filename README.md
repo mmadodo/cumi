@@ -1,3 +1,0 @@
-# gamaliel
-# cumi
-# cumi
